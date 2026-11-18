@@ -1,0 +1,1 @@
+# s-tekt-story-images
